@@ -1,1 +1,1 @@
-# anime_blog
+# god_of_war_blog
