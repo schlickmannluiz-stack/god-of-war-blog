@@ -1,1 +1,1 @@
-# god_of_war_blog
+# Lore_of_war_blog
